@@ -28,8 +28,8 @@
             PonyTown open , ok..
 
 
-            PS.im emotionally detached
-            sometimes
+            PS.im emotionally detaching
+            sometimes to cope !!
             ⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=cozywarmth&color=3b2a20&style=for-the-badge&label=CUDDLE+COUNT)
