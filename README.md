@@ -29,7 +29,9 @@
 
 
             PS.im emotionally detaching
-            sometimes to cope !!
+            sometimes to cope !! 
+            at those times, I would put
+            "dniud" / "dni" on my name!
             ⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=cozywarmth&color=3b2a20&style=for-the-badge&label=CUDDLE+COUNT)
