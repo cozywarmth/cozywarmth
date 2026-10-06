@@ -45,9 +45,9 @@
 
 <details>
 
-<summary>Tips for collapsed sections</summary>
+<summary>My Oomfies & servants 😈</summary>
 
-### Oomfies & my servants 😈 
+### Make me fries !!
 Bensin , Zuzu (lilvro) , Svar (Dada) , Xylie ,
 hanmi(koikoi) , Mei , Kuro , Irene , Chii (unky/unc) , mikyii (milki) , Miko , 
 
