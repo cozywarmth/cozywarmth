@@ -47,8 +47,8 @@
 
 <summary>My Oomfies & servants 😈</summary>
 
-### Make me fries !!
+### Make me tons of fries !!
 Bensin , Zuzu (lilvro) , Svar (Dada) , Xylie ,
-hanmi(koikoi) , Mei , Kuro , Irene , Chii (unky/unc) , mikyii (milki) , Miko , 
+hanmi(koikoi) , Ryuu (Grandmama) , Mei , Kuro , Irene , Chii (unky/unc) , mikyii (milki) , Miko , 
 
 </details>
