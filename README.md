@@ -49,6 +49,6 @@
 
 ### Make me tons of fries !!
 Bensin , Zuzu (lilvro) , Svar (Dada) , Xylie ,
-hanmi(koikoi) , Ryuu (Grandmama) , Mei , Kuro , Irene , Chii (unky/unc) , mikyii (milki) , Miko , 
+Nyxxy , hanmi(koikoi) , Ryusuke (Grandmama) , Mei , Kuro (N's) , Irene , Chii (unky/unc) , mikyii (milki) , Miko , Shannon ,
 
 </details>
