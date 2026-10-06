@@ -49,7 +49,7 @@
 
 ### Make me tons of fries !!
 Bensin , Zuzu (lilvro) , Svar (Dada) , Xylie ,
-Nyxxy ,  Maki , Hanmi (koikoi) , Ryusuke (Grandmama) , Mei , Kuro (N's) , Irene , Chii (unky/unc) , mikyii (milki) , Shannon , Yuna , Eternal , Kaz , Fugorin .
+Nyxxy ,  Maki , Hanmi (koikoi) , Ryusuke (Grandmama) , Mei , Kuro (N's) , Irene , Chii (unky/unc) , mikyii (milki) , Shannon , Zu , Yuna , Eternal , Kaz , Fugorin .
 
 ### My non-PT friends !!
 Mayo , Yuki , Miko .
