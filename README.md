@@ -5,8 +5,8 @@
 <div align="center">⠀
 kev⠀/⠀kevin ⠀or⠀ osamu
 
-02 ⠀june ⠀🎂 , ⠀6teen !
-him⠀/ them , meowmeowme
+02 june⠀🎂 ,⠀6teen  ,
+him/them , meowmeowme
 
 i can sometimes be chill,
 but sometimes can be fun
