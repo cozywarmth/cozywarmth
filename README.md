@@ -45,7 +45,7 @@ at those times, I would put
 <div align="center">
 <details>
 
-<summary>My Oomfies & servants 😈</summary>
+<summary>My fam & servants 😈</summary>
 
 ### Make me tons of fries !!
 Bensin , Zuzu (lilvro) , Svar (Dada) , Xylie ,
