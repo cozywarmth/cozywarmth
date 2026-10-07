@@ -41,7 +41,7 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&duration=1888&color=FFFFFF&center=true&vCenter=true&multiline=true&width=340&height=115&lines=Hold+me%2C+console+me%2C;And+then+I'll+leave+;Without+a+trace." alt="Typing SVG" /></a>
 ![image](https://github.com/cozywarmth/Cozywarmth/blob/126bdcea7f41e5674ec7fb4b3ce41136d15d915d/42f08bcc9d64b844452ccb4c0761a65e.gif)
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&size=24&duration=4000&pause=49&color=FFFFFF&center=true&vCenter=true&multiline=true&width=440&height=220&lines=You+look+to+me;And+I+look+away;Though+I+had+been+looking+;You+make+me+feel+like+a+fool;Waiting+for+you" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&size=24&duration=4000&pause=49&color=FFFFFF&center=true&vCenter=true&multiline=true&width=440&height=115&lines=Harvey%2C+nobody+know+what+I+see%2C;Nodoby+knows+I'm+waiting%2C;Waiting+for+you+to+call" alt="Typing SVG" /></a>
 <div align="center">
 <details>
 
