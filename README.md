@@ -49,13 +49,14 @@ at those times, I would put
 
 ### Make me tons of fries !!
 Bensin , Zuzu (lilvro) , Svar (Dada) , Xylie ,
-Nyxxy ,  Maki , Taro (koi/hanmi) , Ryusuke (Grandmama) , Mei , Kuro (N's) , Irene , Chii (unky/unc) , mikyii (milki) , Shannon , Zu , Yuna , Eternal , Kaz , Fugorin .
+Nyxxy ,  Maki , Taro (koi/hanmi) , Ryusuke (Grandmama) , Mei , Kuro (N's/mumimimihonk) , Irene , Chii (unky/unc) , mikyii (milki) , Shannon , Zu , Yuna , Eternal , Kaz , Fugorin .
 
 ### My non-PT friends !!
 Mayo , Yuki , Miko .
 
 </details>
 </div>
+
 
 ![image](https://github.com/cozywarmth/Cozywarmth/blob/a9e621eba71a2964b29eb7d547dfeffa3efa6d73/Tak%20berjudul153_20260825070931.png)
 
