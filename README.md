@@ -48,7 +48,7 @@ at those times, I would put
 <summary>My fam & servants 😈</summary>
 
 ### Make me tons of fries !!
-[Bensin]([https://github.com/yuumnn])
+<a href="https://github.com/yuumnn">Bensin</a>
 , Zuzu (lilvro) , Svar (Dada) , Xylie ,
 Nyxxy ,  Maki , Taro (koi/hanmi) , Ryusuke (Grandmama) , Mei , Kuro (N's/mumimimihonk) , Irene , Chii (unky/unc) , mikyii (milki) , Shannon , Zu , Yuna , Eternal , Kaz , Fugorin .
 
