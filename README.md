@@ -49,7 +49,8 @@ at those times, I would put
 
 ### Make me tons of fries !!
 <a href="https://github.com/yuumnn">Bensin</a>
-, Zuzu (lilvro) , Svar (Dada) , Xylie ,
+, Zuzu (lilvro) , Svar (Dada) , <a href="https://github.com/xooshi">Xylie</a>
+,
 Nyxxy ,  Maki , Taro (koi/hanmi) , Ryusuke (Grandmama) , Mei , Kuro (N's/mumimimihonk) , Irene , Chii (unky/unc) , mikyii (milki) , Shannon , Zu , Yuna , Eternal , Kaz , Fugorin .
 
 ### My non-PT friends !!
