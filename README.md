@@ -51,7 +51,7 @@ at those times, I would put
 <a href="https://github.com/yuumnn">Bensin</a>
 , Zuzu (lilvro) , Svar (Dada) , <a href="https://github.com/xooshi">Xylie</a>
 ,
-Nyxxy ,  Maki , Taro (koi/hanmi) , Ryusuke (Grandmama) , Mei , Kuro (N's/mumimimihonk) , Irene , Chii (unky/unc) , mikyii (milki) , Shannon , Zu , Yuna , Eternal , Kaz , Fugorin .
+Nyxxy ,  Maki , Taro (koi/hanmi) , Ryusuke (Grandmama) , Mei , <a href="https://github.com/naturalharmoniaa">Kuro (Mumimimihonk)</a> , <a href="https://github.com/LuminwinterRequiem">Irene</a> , <a href="https://github.com/Chiiwara">Chii (unky)</a> , mikyii (milki) , Shannon , Zu , Yuna , Eternal , Kaz , Fugorin .
 
 ### My non-PT friends !!
 Mayo , Yuki , Miko .
