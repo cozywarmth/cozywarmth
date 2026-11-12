@@ -50,8 +50,8 @@ at those times, I would put
 ### Make me tons of fries !!
 <a href="https://github.com/yuumnn">Bensin</a>
 , Zuzu (lilvro) , Svar (Dada) , <a href="https://github.com/xooshi">Xylie</a>
-,
-Nyxxy ,  Maki , Taro (koi/hanmi) , Ryusuke (Grandmama) , <a href="https://github.com/FoxiansTale">Mei </a> , <a href="https://github.com/naturalharmoniaa">Kuro (Mumimimihonk)</a> , <a href="https://github.com/LuminwinterRequiem">Irene</a> , <a href="https://github.com/Chiiwara">Chii (unky)</a> , mikyii (milki) , Shannon , Zu , <a href="https://github.com/shiqingxuanbear">Yuna </a> , <a href="https://github.com/eternaliity">Eternal </a> , Kaz , Fugorin .
+, <a href="https://github.com/onemorewish">Lana</a> , 
+Nyxxy ,  <a href="https://github.com/prettymaki">Maki</a> , <a href="https://github.com/lovelydrug">Taro(Hanmi/koi) </a> , Ryusuke (Grandmama) , <a href="https://github.com/FoxiansTale">Mei </a> , <a href="https://github.com/naturalharmoniaa">Kuro (Mumimimihonk)</a> , <a href="https://github.com/LuminwinterRequiem">Irene</a> , <a href="https://github.com/Chiiwara">Chii (unky)</a> , <a href="https://github.com/TeaReverie">Mikyii (milki)</a>, Shannon , Zu , <a href="https://github.com/shiqingxuanbear">Yuna </a> , <a href="https://github.com/eternaliity">Eternal </a> , Kaz , Fugorin .
 
 ### My non-PT friends !!
 Mayo , Yuki , Miko .
