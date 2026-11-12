@@ -49,9 +49,9 @@ at those times, I would put
 
 ### Make me tons of fries !!
 <a href="https://github.com/yuumnn">Bensin</a>
-, kazoo (lilvro) , Svar (Dada) , <a href="https://github.com/xooshi">Xylie</a>
+, kazoo (lilvro) , Svar (Dada) , Ryusuke (Grandmama) , <a href="https://github.com/xooshi">Xylie</a>
 , <a href="https://github.com/onemorewish">Lana</a> , 
-<a href="https://github.com/NyxxIsSleepy">Nyxxy</a> ,  <a href="https://github.com/prettymaki">Maki</a> , <a href="https://github.com/lovelydrug">Taro(Hanmi/koi) </a> , Ryusuke (Grandmama) , <a href="https://github.com/FoxiansTale">Mei (fat-ther) </a> , <a href="https://github.com/naturalharmoniaa">Kuro (Mumimimihonk)</a> , <a href="https://github.com/izulation">Izuzu</a> , <a href="https://github.com/LuminwinterRequiem">Irene</a> , <a href="https://github.com/Chiiwara">Chii (unky)</a> , <a href="https://github.com/TeaReverie">Mikyii (milki)</a>, Shannon , Zuu , <a href="https://github.com/shiqingxuanbear">Yuna </a> , <a href="https://github.com/eternaliity">Eternal </a> , Kaz , Miko , Mayo , Yuki .
+<a href="https://github.com/NyxxIsSleepy">Nyxxy</a> ,  <a href="https://github.com/prettymaki">Maki</a> , <a href="https://github.com/lovelydrug">Taro(Hanmi/koi) </a> , <a href="https://github.com/FoxiansTale">Mei (fat-ther) </a> , <a href="https://github.com/naturalharmoniaa">Kuro (Mumimimihonk)</a> , <a href="https://github.com/izulation">Izuzu</a> , <a href="https://github.com/LuminwinterRequiem">Irene</a> , <a href="https://github.com/Chiiwara">Chii (unky)</a> , <a href="https://github.com/TeaReverie">Mikyii (milki)</a> , <a href="https://github.com/piercingveil">Zuu</a> , <a href="https://github.com/shiqingxuanbear">Yuna </a> , <a href="https://github.com/eternaliity">Eternal </a> , <a href="https://github.com/Eli0yearner">Beef/Feeb</a>, Shannon , Kaz , Miko , Mayo , Yuki .
 
 </details>
 </div>
