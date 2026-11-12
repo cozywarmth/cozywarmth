@@ -12,7 +12,7 @@ i can sometimes be chill,
 but sometimes can be fun
 and reckless; depending
 on mood/ how people acts 
-around me —— (maybe)....
+around me.
 
 
 I use "offchat" on name
